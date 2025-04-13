@@ -1,1 +1,1 @@
-TPO @ NGRP Azure System Team
+TPO @ Azure System Team
